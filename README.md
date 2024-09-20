@@ -1,7 +1,7 @@
 # Rowan_Amr_Othman
 # 👋 Hi, I'm Rowan Amr Othman!
 
-### 🌍 Alexandria, Egypt | ✉️ rowanamr.34@gmail.com | 💼 [LinkedIn](https://www.linkedin.com/in/rowan-amr/)
+###  ✉️ rowanamr.34@gmail.com | 💼 [LinkedIn](https://www.linkedin.com/in/rowan-amr/)
 
 ---
 
